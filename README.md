@@ -41,5 +41,5 @@ We may update this policy from time to time. You will be notified of any major c
 6. Contact Us
 If you have any questions or concerns about this Privacy Policy, contact us at:
 
-📧 Email: [your_email@example.com]
+📧 Email: [jkindiajk@gmail.com]
 📱 App Name: Hurray
